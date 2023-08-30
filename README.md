@@ -2,4 +2,4 @@
 
 Apresentação da plataforma
 
-Agora coloque o que você aprendeu  nossa aula.
+Agora coloque o que você aprendeu  na aula de hoje.
